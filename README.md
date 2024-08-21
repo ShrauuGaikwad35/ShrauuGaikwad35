@@ -1,3 +1,0 @@
-- Hey!!! I am Shrawani Gaikwad🤍
-- AIDS Student👩‍🎓
-- Love Travelling✈️️❤
