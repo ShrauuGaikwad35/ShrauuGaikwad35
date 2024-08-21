@@ -1,5 +1,3 @@
-- Hey!!! I am Shrauu🤍
-- जय शंकर❤🔱
-- SU🎓
-- Mumma's Little🤏🏻munchkin💗
-- >>>🐣❤🌜
+- Hey!!! I am Shrawani Gaikwad🤍
+- AIDS Student👩‍🎓
+- Love Travelling✈️️❤
